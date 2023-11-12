@@ -8,6 +8,7 @@ We can imagine a man who is perfectly great. We call that man Adonis and we stri
 
 *Edits:
 1. On a side note, self-discipline and fortitude are maybe more aptly described simply as strength.*
+2. This is just Stoicism now that I think about it just with more virtues which is all technically virtue as they all represent human greatness.
 
 ![image](https://github.com/philosopher49328/Letters/assets/150571599/e78d44be-ff89-4a0b-a891-1615900d89dc)
 # Be more like Adonis
