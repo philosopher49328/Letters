@@ -6,5 +6,7 @@ Eudaimonia is an ancient greek concept used to describe living in a way that is 
 
 We can imagine a man who is perfectly great. We call that man Adonis and we strive to be more like him. He is perfectly self-disciplined, never allowing his base temptations to impede or alter his judgement or actions. He is perfectly fortitudinous, resisting and persisting through the greatest adversity and fear imaginable. He is perfectly wise, never making a fallacious or rushed judgement. He is perfectly loving. Adonis loves all that is, from his worst enemy to fate itself. Some that are unlike Adonis hate him for who he is. He does not anger quickly or hate them. He treats them with love, warmth, brotherhood, and justice. He never suspects anyone's betrayal but nonetheless makes use of appropriate discretion. We can't know for certain what Adonis would do in any particular scenario since Adonis is an abstraction, a projection of human greatness onto one man. We can only define Adonis through vague adjectives such as wisdom, self-discipline, fortitude, and love.
 
+But really, we need to stop trying to philosophize about Adonis or what he is like or what he would do. We just need to be like him.
+
 ![image](https://github.com/philosopher49328/Letters/assets/150571599/e78d44be-ff89-4a0b-a891-1615900d89dc)
-# Be more like Adonis
+# Be like Adonis
