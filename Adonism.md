@@ -6,5 +6,7 @@ The foundation of all behavior by conscious beings is driven by the pursuit of p
 
 We can imagine a man who is perfectly great. We call that man Adonis and we strive to be more like him. He is perfectly self-disciplined, never allowing his base temptations to impede or alter his judgement or actions. He is perfectly fortitudinous, resisting and persisting through the greatest adversity and fear imaginable. He is perfectly wise, never making a fallacious or rushed judgement. He is perfectly loving. Adonis loves all that is from his worst enemy to fate itself. Some that are unlike Adonis hate him for who he is. He does not anger quickly or hate them. He treats them with love, warmth, brotherhood, and justice. He never suspects anyone's betrayal but nonetheless makes use of appropriate discretion. Adonis speaks in quotes. When I say this, I mean that Adonis is an abstraction, a projection of human greatness onto one man; Therefore, all of what he says and does can be likened to a collage or montage of human greatness. We can only define Adonis through vague adjectives such as wisdom, self-discipline, fortitude, and love.
 
+**On a side note, self-discipline and fortitude are maybe more aptly described simply as strength.**
+
 ![image](https://github.com/philosopher49328/Letters/assets/150571599/e78d44be-ff89-4a0b-a891-1615900d89dc)
 
