@@ -1,6 +1,6 @@
 Adonis is an idea. Adonis is the perfect man. Adonism is the pursuit of being like Adonis.
 
-Adonis is indescribable beyond that he is perfect. There are words that might help to foggily articulate what Adonis is. A few words I have come up with are listed below.
+Adonis is essentially indescribable beyond that he is perfect. While there may be words that might help to foggily articulate what Adonis is, there is no pinning down exactly what Adonis is like, what he does, or what he says. A few words I have come up with are listed below.
 
 - Fortitude
 - Ambition
