@@ -13,12 +13,17 @@ We can't know much more than this about Adonis. People who try to fix their ideo
 
 For example there are some traits that are hard to imagine Adonis not possessing, but of course one can't know for sure how accurate these descriptions are. These virtues are listed below:
 
-- Love
-- Fortitude
-- Self-Discipline
-- Wisdom
-- Presence
-- Humility
-- Ambition
-- Leadership
-- 
+> - Love
+> - Fortitude
+> - Self-Discipline
+> - Wisdom
+> - Patience
+> - Presence
+> - Humility
+> - Ambition
+> - Leadership
+> - Gratitude
+
+Of course these overlap, could go on forever, and are obviously not perfect. There are no perfect virtues or ideas that can attributed to Adonis. Theory around Adonism is necessarily cloudy and difficult for Adonis would likely not spend his time arguing in hypotheticals. The man who is good in actuality is better than the man who is good in theory.
+
+>Waste no more time arguing what a good man should be. Be one." - Marcus Aurelius
