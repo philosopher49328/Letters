@@ -26,4 +26,6 @@ For example there are some traits that are hard to imagine Adonis not possessing
 
 Of course these overlap, could go on forever, and are obviously not perfect. There are no perfect virtues or ideas that can attributed to Adonis. Theory around Adonism is necessarily cloudy and difficult for Adonis would likely not spend his time arguing in hypotheticals. The man who is good in actuality is better than the man who is good in theory.
 
+# Be Like Adonis
+
 >Waste no more time arguing what a good man should be. Be one." - Marcus Aurelius
