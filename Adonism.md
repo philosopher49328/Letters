@@ -1,4 +1,4 @@
-> "Be like the cliff against which the waves continually break; but it stands firm and tames the fury of the water around it. - Marcus Aurelius
+> "Be like the cliff against which the waves continually break; but it stands firm and tames the fury of the water around it." - Marcus Aurelius
 
 The foundation of masculinity is stillness, like the cliff upon which the waves will break for all time. The feminine is the movement, the turbulent and extravagant force of nature.
 
